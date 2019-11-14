@@ -1,2 +1,1 @@
-nghệ thuật con số
-làm 
+nghệ thuật
